@@ -1,0 +1,81 @@
+<html>
+
+<head>
+<titulo><font color="green" SIZE="20" face="impact"><center> Marijuana em Bahamas </center></font></titulo>
+<subtitulo><font color="green" SIZE="5" face="verdana"><center> Depoimento de um Usuário </center></font></subtitulo>
+</head>
+
+<body background="imagem estudo.png"leftmargin="250"topmargin="50">
+<texto><font color="white" face="verdana">
+<p><justify>
+Antes de mais nada, gostaria de pedir a GENTILEZA de termos um debate RACIONAL e sem preconceitos acerca do assunto. 
+Estou postando nessa seção por estar cônscio de que aqui não haverão adolescentes arrogantes sem argumentos ou embasamentos. Enfim...
+</p></justify>
+<p><justify>
+Tenho 28 anos, dos quais 8 deles sou usuário da Cannabis Sativa. Droga popularmente conhecida como Maconha.
+Sou solteiro e tenho uma filha com a idade do tempo que uso a erva. 
+Quando era mais jovem, lá pelos meus 14~15 anos de idade, sabia que meu irmão fumava com seus amigos. Algumas vezes aqui em casa mesmo.
+</p>
+Tinha muito preconceito para com a erva sem mesmo saber o motivo. Na verdade, eu culpava o cheiro que achava desagradável. Não entendia o porquê odiava tanto. Não podia ser somente pelo cheiro. Talvez o tanto que as pessoas falavam, acabei acreditando em tudo e por fim acabei criando um certo preconceito.
+
+Quando estava com 19 para 20 anos, estava passando por uma situação complicada no meu relacionamento com a mãe da minha filha que já estava para nascer. 
+
+Frequentava a casa de um colega que na frente era um bar e atrás, sua antiga residência. Dávamos festas com churrasco, bebidas de graça e muita, muita droga. Das quais Maconha e Cocaína imperavam. 
+
+Certo dia tive a curiosidade de experimentar maconha (Nos meus 16 anos, tinha experimentado cocaína, mas maconha, nunca). Achei aquilo o máximo. O ápice da alegria. O apogeu do relaxamento. Vi, na maconha, uma válvula de escape para os problemas cotidianos. Tinha um problema? Era só fumar um beck e pronto! Tudo estava mais tranquilo, conseguia pensar com mais calma.
+
+No começo fumava muito pouco. Não conseguia dar mais do que 6 pegas no baseado que não aguentava a brisa. 
+Fumava apenas nos finais de semana que ia pra casa desse meu colega (ou seja, todos os fins de semana) até que a quantidade que estava fumando já não era suficiente. Já não e dava mais aquele 'barato' do começo. Então, comecei a fumar em quantidades maiores. 
+Naquela época, não conseguia bolar (fazer o cigarro), então não tinha como fumar muito mais do que um baseado com um colega.
+
+Coloquei na minha cabeça que deveria aprender a bolar sozinho, para então poder fumar sozinho a quantidade que eu quisesse. E assim aconteceu...
+Depois disso, comecei a comprar 50g por mês (que dá R$ 150,00 - maconha de 'qualidade') e a fumar todas essas 50g. 
+Meu pai faleceu, meu irmão mais velho (não o que fumava) acabou saindo de casa, minha mãe foi morar em outra cidade e deixou eu e meu irmão (o que fuma) morando aqui, sozinhos.
+</p></justify>
+
+<p>
+Fizemos do nosso apartamento, a Babilônia. Fumávamos MUITA maconha. Coisa de 4~5 baseados POR DIA da semana e nos finais de semana cerca de 8~10 POR DIA.
+Percebi então que estava há muito tempo viciado. E um viciado crônico. Não de chegar ao ponto de roubar, pois creio eu que a maconha não te deixa na paranoia de char a esse ponto. 
+
+Eu era uma pessoa que, depois que comecei a fumar, defendia a legalização da droga com unhas e dentes. Argumentando sempre à favor e com provas científicas. Mas na maioria das vezes, médicas e não recreativas.
+
+A maconha me ajudou MUITO a crescer. Eu era uma pessoa fechada, reservada e que tinha uma visão muito limitada de tudo.
+Estou tentando parar, mas é muito difícil. Consegui, com muita força de vontade e consciência, dar uma diminuída radical.
+Agora, fumo 1 baseado por semana. Trabalho de manhã e a tarde, de noite vou para a faculdade e quando volto, dou dois, três pegas, briso um pouco na internet, jogos ou em algo na tv e vou dormir.
+Fins de semana, fumo só um e de noite. 
+</p>
+
+<p>
+Minha conclusão: Se você não fuma, mas tem vontade de experimentar. NÃO EXPERIMENTE. Por mais que você diga "Eu sei a hora de parar", você estará mentindo para você mesmo. Pois um vício não é nada fácil de largar. E eu sou a prova viva disso.
+O tempo dela me ajudar já foi. Ela já abriu minha mente e agora está me prejudicando. 
+Quando não tenho um beck pra fumar, fico muito nervoso. Não ao ponto de sair quebrando tudo. Mas de dar coices em pessoas queridas.
+
+Sem contar o gasto não só com a maconha em si, mas também com 'laricas'. O uso da erva vem acompanhado de um rombo no estômago, que te dá vontade de comer tudo -no meu caso, doces.
+Até nisso ela me prejudicou: Estou com um dente cariado que terá que ser arrancado. Meu dentista me disse: "Em pleno século XXI ter que arrancar um dente com tantas opções para a higiene bucal". 
+Não que eu não fazia a higiene. Pelo contrário, fazia até muito bem. Mas o problema era o excesso de açúcar.
+</p>
+Bom, espero um dia largar dessa merdda de uma vez por todas. Pode soar meio estranho, mas tenho consciência de que devo parar de uma vez por todas para focar definitivamente e somente na minha carreira. Pois na sala de aula, mesmo reduzindo o uso, ainda fico um pouco desconcentrado, meio avoado. E isso não está sendo bom, vez que, ganho um salário-miséria que só da pra pagar a faculdade, pagar a condução e pensão alimentícia.
+
+Portanto pessoal, antes de querer se aventurar na 'brisa' da maconha, em ser 'descolado' e 'cool', pensem que seu uso recreativo agora, pode se tornar um vício crônico amanhã.
+
+Por esse motivo, pode ser egoísta e limitado para uns, mas hoje não sou mais à favor da legalização da maconha. Pois, por experiência de vida, afirmo que ela não é uma 'erva natural que não faz mal à ninguém'.
+
+Abraços e mais uma vez peço: Sem julgamentos e preconceitos. Vamos tentar debater esse assunto seríssimo que está em pauta, inclusive no Congresso Nacional.
+</texto></font>
+
+
+
+
+
+
+
+
+
+
+
+
+</body>
+
+
+
+</html>
